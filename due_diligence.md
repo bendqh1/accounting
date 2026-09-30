@@ -30,3 +30,18 @@ litigation → foreign ownership/work issues.
 * ภ.ง.ด.1
 * ภ.ง.ด.3
 * ภ.ง.ด.53 Withholding-tax filings for the last 12 months 
+
+#### Notes
+
+If the owner is reluctant to give them, say --- I don't care if you understand these forms or not; I need them for a lawyer.
+
+
+### Questions
+
+
+* Who has authority to operate the company bank account? 
+* Is there an unresolved issue with Building management?
+* Whose name is the government/landlord concession or lease in?
+* Does the company have the required Foreign Business authorization, if applicable?
+* Does the company have existing loans, guarantees, lawsuits, unpaid taxes or other liabilities?
+* Is the lease transferable?
